@@ -1,0 +1,1 @@
+StarTheory - rough sketch, will update when project evolve. It's supposed to be softly based on spice empires 4.
